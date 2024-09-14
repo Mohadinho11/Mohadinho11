@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Mohadinho11
-- 👀 I’m interested wrting code.
+- 👀 I’m interested Designing and maintaining.
 - 🌱 I’m currently learning university
 - 💞️ I’m looking to collaborate on you
 - 📫 How to reach me goals
